@@ -1,1 +1,1 @@
-# Find me at [sam.bossley.us](https://sam.bossley.us) :wave:
+# Find me at [sam.bossley.xyz](https://sam.bossley.xyz) :wave:
